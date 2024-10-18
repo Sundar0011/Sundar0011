@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **sundaravel.dev@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1eBXJqHO92NlfGVid8qC20aCo9PYr8QGsPKXcsbqKhQg/edit?usp=drivesdk](https://docs.google.com/document/d/1eBXJqHO92NlfGVid8qC20aCo9PYr8QGsPKXcsbqKhQg/edit?usp=drivesdk)
+- 📄 Know about my experiences [Resume](https://docs.google.com/document/d/1eBXJqHO92NlfGVid8qC20aCo9PYr8QGsPKXcsbqKhQg/edit?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
